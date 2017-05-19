@@ -1,2 +1,2 @@
-# Juan-K-s-Decks
+# Juan-K's Decks
 List of Juan-K's Decks
